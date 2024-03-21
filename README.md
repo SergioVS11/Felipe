@@ -1,1 +1,1 @@
-Readme editado por Vargas_Sergio
+Readme editado por Sergio_Vargas
